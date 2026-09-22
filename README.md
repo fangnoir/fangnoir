@@ -13,4 +13,4 @@
 `HTML5` `CSS3` `JavaScript` `Git` 
 Follow pleasee, I'd really appreciate it !!
 ### 🪞 Connect with me!!
-[💼 Discord:](Fangnoir) | [📸 Roblox](https://www.roblox.com/users/8276187446/profile))
+[💼 Strawpagee:]((https://lovelydeath.straw.page/)) | [📸 Roblox](https://www.roblox.com/users/8276187446/profile))
