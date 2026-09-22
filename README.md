@@ -1,16 +1,16 @@
-## Hi there 👋
+# 𝜗𝜚 Hi, I'm [Zan/Zander]!
 
-<!--
-**fangnoir/fangnoir** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+  <img src="bunny.png" width="300" alt="Cute Bunny Portrait"/>
+</p>
 
-Here are some ideas to get you started:
+### 🎀 About Me
+- 🐇 **Interests:** Art, gaming, extext
+- 🩰 **Current Projects:** Customizing my GitHub space.
+- ☁️ **Fun Fact:** I love clean, minimalist white aesthetics.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### . LoveLoveLove!
+`HTML5` `CSS3` `JavaScript` `Git` 
+
+### 🪞 Connect with me!!
+[💼 Discord:](Fangnoir) | [📸 Roblox](https://www.roblox.com/users/8276187446/profile))
