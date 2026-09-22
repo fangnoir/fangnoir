@@ -1,7 +1,7 @@
 # 𝜗𝜚 Hi, I'm [Zan/Zander]!
 
 <p align="center">
-  <img src="bunny.png" width="300" alt="Cute Bunny Portrait"/>
+  <img src="bunny.png.jpg" width="300" alt="Cute Bunny Portrait"/>
 </p>
 
 ### 🎀 About Me
