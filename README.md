@@ -1,16 +1,14 @@
-# 𝜗𝜚 Hi, I'm [Zannn]!
+# 𝜗𝜚 ㅤ  ׅ    ۫   𐂯ᩙ᩠𓏼    ׄ   ♡゙    ̹ ̜ㅤ[Zannn]!
 
 <p align="center">
   <img src="bunny.png.jpg" width="300" alt="Cute Bunny Portrait"/>
 </p>
 
-### 🎀 About Me
-- 🐇 **Interests:** Art, gaming, extext
-- 🩰 **Current Projects:** Customizing my GitHub space.
-- ☁️ **Fun Fact:** I love clean, minimalist white aesthetics.
+  ۫  ⊹     angel      命
+::        ꒰    zan!! ⠀੭       ֹ  
 
-### . LoveLoveLove!
+### . LoveLoveLove! ⎯⎯ ⠀ ៸ 𝒞 ׄ  ׅ   浮世  ◟ ⋆🗞️ ۪  ◝
 `HTML5` `CSS3` `JavaScript` `Git` 
 Follow pleasee, I'd really appreciate it !!
-### 🪞 Connect with me!!
-[💼 Strawpagee:]((https://lovelydeath.straw.page/)) | [📸 Roblox](https://www.roblox.com/users/8276187446/profile))
+### . Connect with me!!
+[ Strawpagee:]((https://lovelydeath.straw.page/)) | [ Roblox](https://www.roblox.com/users/8276187446/profile))
