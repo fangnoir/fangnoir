@@ -7,7 +7,7 @@
   ۫  ⊹     angel      命
 ::        ꒰    zan!! ⠀੭       ֹ  
 
-### . LoveLoveLove! ⎯⎯ ⠀ ៸ 𝒞 ׄ  ׅ   浮世  ◟ ⋆🗞️ ۪  ◝
+### . fang bites .  ⎯⎯ ⠀ ៸ 𝒞 ׄ  ׅ   浮世  ◟ ⋆🗞️ ۪  ◝
 `HTML5` `CSS3` `JavaScript` `Git` 
 Follow pleasee, I'd really appreciate it !!
 ### . Connect with me!!
