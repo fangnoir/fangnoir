@@ -1,4 +1,4 @@
-# 𝜗𝜚 Hi, I'm [Zan/Zander]!
+# 𝜗𝜚 Hi, I'm [Zannn]!
 
 <p align="center">
   <img src="bunny.png.jpg" width="300" alt="Cute Bunny Portrait"/>
@@ -11,6 +11,6 @@
 
 ### . LoveLoveLove!
 `HTML5` `CSS3` `JavaScript` `Git` 
-
+Follow pleasee, I'd really appreciate it !!
 ### 🪞 Connect with me!!
 [💼 Discord:](Fangnoir) | [📸 Roblox](https://www.roblox.com/users/8276187446/profile))
