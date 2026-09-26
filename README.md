@@ -12,3 +12,4 @@ Follow pleasee, I'd really appreciate it.
 ### . Connect with me.
 [ Discord: .Fangnoir | [ Roblox](https://www.roblox.com/users/8276187446/profile))
 Some social links are old ones in my github.
+Thank you followers btw <33 . 
